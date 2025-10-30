@@ -1,5 +1,5 @@
 ## ! ! !
-(¬_¬")💢 hei . . 
+𐔌˙. hei . . 
 
 
 <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/e25565c5-b76b-4b9d-bd05-a7505d52b035" />
