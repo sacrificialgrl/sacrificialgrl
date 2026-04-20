@@ -7,7 +7,7 @@
 
 
 
-⎛⎝( ` ᢍ ´ )⎠⎞ my stampzz !! 
+⎛⎝( ` ᢍ ´ )⎠⎞ whyd they breakkk browtf
 
 
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b0e7c213-05a3-447e-92b1-e95631fd601a" /> 
